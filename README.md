@@ -1,2 +1,2 @@
 # Research
-There are numerous research conducted based on the topics
+These are my research conducted Business, Hackathon, Corruption, Education System ,and Impact of Scholarship on Academic Performance and Motivation.
